@@ -2,4 +2,6 @@
 Jojobet, Jojobet Giriş, Jojobet Güncel Giriş
 
 
-<img width="426" alt="Image" src="https://github.com/user-attachments/assets/d467e866-4a41-4228-96a7-27f0a2d8b42f" />
+<img width="392" alt="Image" src="https://github.com/user-attachments/assets/3f1c5cf4-bd72-44ad-b55c-edf0c7b6cd60" />
+
+JojoBet, yüksek oranlar ve geniş bahis seçenekleriyle en iyi oyun deneyimini sunan lider bahis platformudur. Güvenli ödeme yöntemleri, hızlı para çekme işlemleri ve kullanıcı dostu arayüzüyle spor bahisleri ve casino oyunlarının keyfini çıkarın.  
